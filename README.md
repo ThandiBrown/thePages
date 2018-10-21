@@ -16,7 +16,9 @@ that may even have your family's back more that it's own
 3. Then the finale: Click on the smiley face to enter The Dark Pages
 ** Have the volume up
 
-Once on the Dark Pages, click the titles to return to the previous page
+Once on the Dark Pages, click the titles to return to the previous pages or uncover videos
+On the blogs, click "E Corp" at the very bottom in read to uncover their secret
+& In the Black Mirror Analysis part, click on the imagines, then click again on the new site to look that review sections.
 
 Start at:
 
